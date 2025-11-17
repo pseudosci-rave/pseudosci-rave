@@ -2,7 +2,7 @@
   <img width="1172" height="674" alt="GzAHdSBboAIoZAD" src="https://github.com/user-attachments/assets/d43e7689-6de3-47e8-bf68-5da207c34114" />
 
   <img width="249" height="27" alt="d9btwc3-0eca92d0-fdac-4141-8a31-36641b04259b" src="https://github.com/user-attachments/assets/d8737536-7b39-4176-9328-a7382bd34ee9" />
-  <p>The same info but longer:</p>
+  <p>Same information, but more details:</p>
   <p>
     If I'm talking to someone, you can interact, but if I'm sitting silently, I'm most likely AFK and you should whisper! 
     You can cuddle and hug with me if you wrote at least hi, because if I notice that someone just sat down next to me, I... 
