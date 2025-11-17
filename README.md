@@ -9,6 +9,8 @@
     don't feel very comfortable.
   </p>
 
+  <p>I probably won't want to roleplay with you. Any ships are allowed except proships. I prefer spamtenna, spamcest, and batjokes!</p>
+
   <img src="https://github.com/user-attachments/assets/1f309ee3-f86d-4e82-aba4-b0d04d356827" alt="105129634_eE6" />
   <img src="https://github.com/user-attachments/assets/6f1297b3-34c2-4b5e-9cf4-5f6fee92e2d5" alt="105144642_Cr9" />
   <img src="https://github.com/user-attachments/assets/dbd46062-093b-4df5-8baf-e86e441c31be" alt="105084195_NYA" />
